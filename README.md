@@ -1,2 +1,2 @@
-# amostradinho-2025-sdds-rr
+# projeto agrinho 2025
 games
